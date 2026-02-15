@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/c94330a8995e7361f841903819711438/b2936a64c2374ca0-93/s2048x3072/836ad10ad5fbca1a0043240ee3d75e4444dc1d77.pnj">
+  <img src="https://64.media.tumblr.com/439d4599ec815547107eb4fe987fedc1/422f725aef5117d9-83/s1280x1920/f9ca65244900eddc5739f84ffa47c1fa4ea02e6a.pnj">
 </p>
